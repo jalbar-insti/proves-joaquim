@@ -1,6 +1,6 @@
  # Documentació
 
-> Joaquim Albar
+> JOAQUIM ALBAR OLIVA
 > 20 d'octubre del 2025
 > INS Mollerussa
 
